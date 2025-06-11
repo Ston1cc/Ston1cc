@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any project I get the opportunity to
 - 📫 How to reach me instagram: 1xy.damian ;  telegram: xy.damian
 - 😄 Pronouns: i dont believe in those
-- ⚡ Fun fact: i am not that fan tho
+- ⚡ Fun fact: i am not that fun tho
 
 <!---
 Ston1cc/Ston1cc is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
